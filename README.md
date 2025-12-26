@@ -1,16 +1,36 @@
-## Hi there 👋
+ђคเђคเ , єɭɭเє ђєгє
 
-<!--
-**faded-radiance/faded-radiance** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-Here are some ideas to get you started:
+--αℓѕσ тнιѕ α¢¢συηт ιѕ υѕє∂ σηℓу ƒσтя ρσηу тσωη αη∂ ι ωιℓℓ ησт ¢нє¢к gιтнυв мυ¢н
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<img width="492" height="498" alt="Screenshot 2025-12-26 2 43 56 PM" src="https://github.com/user-attachments/assets/a9393e77-8f12-4b5b-938c-c13b09f76c12" />
+
+
+╰☆☆IᑎT ᖇᑌᒪEᔕ ☆☆╮
+
+-𝕀 𝕒𝕞 𝕟𝕠𝕣𝕞𝕒𝕝𝕝𝕪 𝕗𝕚𝕟𝕖 𝕨𝕚𝕥𝕙 𝕒𝕝𝕞𝕠𝕤𝕥 𝕒𝕟𝕪𝕠𝕟𝕖 𝕚𝕟𝕥𝕖𝕣𝕒𝕔𝕥𝕚𝕟𝕘 ! 𝕓𝕦𝕥 𝕤𝕙𝕚𝕡𝕤 𝕚𝕨𝕖𝕔𝕦𝕗
+
+-𝕀 𝕞𝕒𝕪 𝕓𝕖 𝕒 𝕓𝕚𝕥 𝕒𝕨𝕜𝕨𝕒𝕣𝕕 𝕒𝕥 𝕗𝕚𝕣𝕤𝕥 𝕓𝕦𝕥 𝕚𝕥 𝕨𝕠𝕟𝕥 𝕓𝕖 𝕝𝕠𝕟𝕘 𝕠𝕟𝕔𝕖 𝕀 𝕘𝕖𝕥 𝕥𝕠 𝕜𝕟𝕠𝕨 𝕦 !
+
+
+☆☆╮ժׁׅ݊ꪀׁׅꪱׁׅ ᥣׁׅ֪ꪱׁׅ꯱ׁׅ֒tׁׅ
+
+-𝕊𝕙𝕒𝕕𝕠𝕨 𝕤𝕦𝕘𝕒𝕣 𝕤𝕙𝕚𝕡𝕡𝕖𝕣𝕤
+
+-𝕕𝕒𝕣𝕜𝕤𝕙𝕚𝕡𝕡𝕖𝕣𝕤, 𝕫𝕠𝕠𝕡𝕙𝕚𝕝𝕖𝕤
+
+-𝔸𝕟𝕪𝕠𝕟𝕖 𝟙𝟠+ , 𝕀'𝕞 𝕒 𝕞𝕚𝕟𝕠𝕣
+
+-𝕙𝕠𝕞𝕠𝕡𝕙𝕠𝕓𝕚𝕔𝕤 𝕒𝕟𝕕 𝕥𝕣𝕒𝕟𝕤𝕡𝕙𝕠𝕓𝕚𝕔𝕤.
+
+
+╰☆☆plŞ iຖtērค¢t☆☆╮
+
+-ℂℝ𝕂 𝔽𝔸ℕ𝕊 𝕀 𝔹𝔼𝔾 ℙ𝕃𝕊 𝕀ℕ𝕋
+
+<img width="247" height="225" alt="image" src="https://github.com/user-attachments/assets/e64de3d6-e887-45d4-a310-a718f93d1c51" />
+
+
+ı Ɩơ۷ɛ ų ąƖƖ !!
