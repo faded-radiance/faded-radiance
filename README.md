@@ -8,4 +8,5 @@
 
 𝕡𝕝𝕖𝕒𝕤𝕖 𝕕𝕠 𝕟𝕠𝕥 𝕔𝕠𝕡𝕪 𝕞𝕪 𝕤𝕜𝕚𝕟𝕤, 𝕊𝕃𝕀𝔾ℍ𝕋 𝕚𝕟𝕤𝕡𝕠 𝕚𝕤 𝕒𝕝𝕝𝕠𝕨𝕖𝕕
 
-<img width="435" height="447" alt="image" src="https://github.com/user-attachments/assets/46169b81-ab9f-4c63-a1cd-6505a22064c7" />
+
+![IMG_3961](https://github.com/user-attachments/assets/4b7c342b-eab6-4af1-9135-5e82959e6486)
