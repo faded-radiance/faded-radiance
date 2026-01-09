@@ -10,5 +10,6 @@
 
 𝕡𝕝𝕖𝕒𝕤𝕖 𝕕𝕠 𝕟𝕠𝕥 𝕔𝕠𝕡𝕪 𝕞𝕪 𝕤𝕜𝕚𝕟𝕤, 𝕊𝕃𝕀𝔾ℍ𝕋 𝕚𝕟𝕤𝕡𝕠 𝕚𝕤 𝕒𝕝𝕝𝕠𝕨𝕖𝕕
 
+𝕤𝕙𝕒𝕕𝕠𝕨𝕤𝕦𝕘𝕒𝕣 ℍ𝔼𝔸𝕍𝕐 𝕕𝕟𝕚
 
-<img width="427" height="446" alt="image" src="https://github.com/user-attachments/assets/3c9249ad-f9c8-4a8e-b247-bb8abb603fe8" />
+![IMG_4013](https://github.com/user-attachments/assets/4d84f6e1-301b-4f7a-a5d6-1e45bc55c576)
