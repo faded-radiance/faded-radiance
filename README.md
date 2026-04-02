@@ -1,3 +1,3 @@
 ok hi remaking ts soon
 
-<img src="https://media.tenor.com/1x-WXMIiv0gAAAAM/bassie-dandys-world.gif" alt="Bassie Dandys World GIF - Bassie Dandys world Dandy world - Discover &amp;  Share GIFs"/>
+<img src="https://i.pinimg.com/originals/2d/8c/1e/2d8c1eae5c098dec68f902219a6027df.gif" alt="This may contain: a cartoon character is sitting on a bench"/>
