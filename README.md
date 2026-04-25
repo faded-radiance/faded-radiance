@@ -1,6 +1,2 @@
 ![](https://komarev.com/ghpvc/?username=your-github-faded-radiance&color=efcbd9)
-
-#### [ꜱᴛʀᴀᴡᴘᴀɢᴇ!](https://faded-radiance.straw.page/)‎ ‎ ‎ ‎ [ᴀᴛᴀʙᴏᴏᴋ!](https://fadedradiance.atabook.org/) ‎ ‎ ‎ adding byi soon Ok
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster&size=23&pause=100&color=EBAABF&center=true&width=435&lines=sign+my+ata!+rmking+straw.;check+byi+aswell!)](https://git.io/typing-svg)
-
-<img width="2048" height="2048" alt="Untitled794_20260409134240" src="https://github.com/user-attachments/assets/b3bc963c-908e-480e-9b0e-cb0aa73c5416" />
+<img width="1199" height="208" alt="Screenshot_2026-04-24_7 44 06_PM-removebg-preview__fliter--red-sunset-with-purple__channel--red__mode--screen" src="https://github.com/user-attachments/assets/8bbda82e-bd92-42a0-8673-fce91908662b" />
