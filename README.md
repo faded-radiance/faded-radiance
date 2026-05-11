@@ -5,8 +5,8 @@
 ‎‎‎<p align="center">
 ![](https://komarev.com/ghpvc/?username=your-github-faded-radiance&label=happy+cookies!&color=f6adad) ‎ ‎ ‎  ‎ ‎ ‎ 
 
-<p align="center">
-<img width="3024" height="2628" alt="Untitled820_20260427171154" src="https://github.com/user-attachments/assets/427083dc-e029-4620-8662-50fab6d12047" />
+<p align="center"><img width="2320" height="2493" alt="Untitled854_20260511194632" src="https://github.com/user-attachments/assets/95af0e80-a8fb-44c4-a17f-95ae602e8d93" />
+
 
 
 
