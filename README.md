@@ -9,7 +9,7 @@
 <summary>dni</summary>
 
 
-dni if you support trump, ice, or israel. homophobics, transphohics, xenophobics, ablests, racists, shadowsugar shippers. darkshippers
+dni if you support trump, ice, or israel. homophobics, transphohics, xenophobics, ablests, racists, shadowsugar+shadowkeeper shippers. darkshippers. Crk fandom iwec theres so many lesphobics and it pmo
 </details>
 
 <details>
