@@ -5,7 +5,7 @@
 
 <p align="center">pony towns eternal sugar 
  
- ‎‎‎<p align="center"> [@cosplaytown](https://github.com/cosplaytown) [@ponychievements](https://github.com/ponycheivements)
+ ‎‎‎<p align="center"> [@cosplaytown](https://github.com/cosplaytown) [@ponychievements](https://github.com/ponychievements/ponychievements)
 
 
  ‎‎‎<p align="center"> ![](https://komarev.com/ghpvc/?username=your-github-faded-radiance&label=Ok&color=Fbdadc) 
