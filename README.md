@@ -3,8 +3,10 @@
 ‎‎‎<p align="center">[straw](https://faded-radiance.straw.page/home)
   ‎‎‎<p align="center">
 
-<p align="center">pony towns eternal sugar @ponychievements
-@cosplaytown
+<p align="center">pony towns eternal sugar 
+ 
+ ‎‎‎<p align="center"> [@cosplaytown](https://github.com/cosplaytown) [@ponychievements](https://github.com/ponycheivements)
+
 
  ‎‎‎<p align="center"> ![](https://komarev.com/ghpvc/?username=your-github-faded-radiance&label=Ok&color=Fbdadc) 
  
