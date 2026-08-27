@@ -1,4 +1,6 @@
- ‎‎‎<p align="center">Remaking this Ok
+<img width="1092" height="132" alt="download (13) (1)" src="https://github.com/user-attachments/assets/b65b3a67-98e0-4888-be0e-c4727a6be360" />
+‎‎‎
+<p align="center">Remaking this Ok
 ‎‎‎<p align="center">Check my new straw NOW or else
 ‎‎‎<p align="center">[straw](https://faded-radiance.straw.page/home)
   ‎‎‎<p align="center">
